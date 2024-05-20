@@ -4,7 +4,7 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://tenor.com/bBqX8.gif)
+![](https://tenor.com/pt-BR/view/up-gif-21275794)
 
 contato email 📧 letant0811@gmail.com
 
