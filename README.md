@@ -4,7 +4,8 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://tenor.com/g7f8hwgi4u0.gif)
+![]![image](https://github.com/LetyciaAntunes/3a2-/assets/137432895/6322cf20-b60d-4e82-bd06-09d3fc64feaa)
+)
 
 contato email 📧 letant0811@gmail.com
 
