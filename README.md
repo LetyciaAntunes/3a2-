@@ -4,7 +4,7 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://tenor.com/pt-BR/view/up-gif-21275794)
+![](https://tenor.com/pt-BR/view/burn-elmo-pyro-burn-it-down-ashes-gif-5835787716691240460)
 
 contato email 📧 letant0811@gmail.com
 
