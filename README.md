@@ -4,8 +4,8 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![]![image](https://github.com/LetyciaAntunes/3a2-/assets/137432895/6322cf20-b60d-4e82-bd06-09d3fc64feaa)
-)
+![](https://media1.tenor.com/m/UPziAk34JgwAAAAC/burn-elmo.gif)
+
 
 contato email 📧 letant0811@gmail.com
 
